@@ -1,0 +1,1 @@
+# Tarefa-de-Reposi-o-1---Plataformas-de-Hardware-2026.2
